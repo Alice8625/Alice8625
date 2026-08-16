@@ -45,3 +45,5 @@ Currently back in Hong Kong and learning HTML
 - 🐈‍⬛ Cat lover
 
 - 🍄‍🟫 きのこの山派
+
+- 🍂 Autumn lover
